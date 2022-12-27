@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...GIRLSS
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...jonas.vercruyssen12@gmail.com
+- 📫 How to reach me on snapchat mei_klokje
 
 <!---
 pabloescobar42/pabloescobar42 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
